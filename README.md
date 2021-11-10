@@ -1,5 +1,5 @@
 Hi! My Name is Barend, and I'm a Nerd. 
 
-Currently, my goals are Learn, Add Value where I can, Innovate and Automate.
+Im not really active on here.
 
-Find me here: https://linktr.ee/benniewashere 
+Find my other projects here: https://linktr.ee/benniewashere
